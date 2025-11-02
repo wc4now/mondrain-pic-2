@@ -1,3 +1,3 @@
 I'm wc4now
-I am curently a student through a course provide by Angela Yu
-sny feedbsck oyld be most welcome.
+I am curently a student studying an online course provide by Angela Yu
+Any feedback is most welcomed.
