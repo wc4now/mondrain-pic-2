@@ -1,3 +1,5 @@
-I'm wc4now
-I am curently a student studying an online course provide by Angela Yu
+I'm Bill. 
+
+Currently, I am a student studying an online Web Design and Development course available from App Brewery. 
+
 Any feedback is most welcomed.
